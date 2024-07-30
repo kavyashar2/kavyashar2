@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kavyashar2
+- 🌱 I’m currently a Computer Science and Engineering major at Santa Clara University
+- 📫 I am a rising senior and will graduate in June 2025!
+- 😄 Pronouns: she/her
