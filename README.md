@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kavyashar2
+- 👋 Hi, I’m Kavya Sharma
 - 🌱 I graduated from Santa Clara University with a Bachelor's Degree in Computer Science and Engineering
 - 📫 Class of 2025!
 - 😄 Pronouns: she/her
