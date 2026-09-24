@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Kavya Sharma
-- 🌱 I graduated from Santa Clara University with a Bachelor's Degree in Computer Science and Engineering
-- 📫 Class of 2025!
+- 🌱 I graduated from Santa Clara University with a Bachelor's Degree in Computer Science and Engineering and am currently pursuing my Master's Degree in the same
+- 📫 Class of 2025 & 2027!
 - 😄 Pronouns: she/her
